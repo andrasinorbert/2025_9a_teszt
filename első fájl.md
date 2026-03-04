@@ -9,9 +9,9 @@
 
 
 ## Bognár-Pupos Róbert Richárd
-
-
-
+- tuff
+- yes
+- ai bubble contributor (maybe)
 ## Csomor Bende
 
 
