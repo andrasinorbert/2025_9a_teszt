@@ -2,7 +2,8 @@
 
 ## Bige Bence Szabolcs
 
-
+- hate foids
+- budapest is tuff
 
 ## Boér Dávid János
 
