@@ -2,7 +2,8 @@
 
 ## Bige Bence Szabolcs
 
-
+- hate foids
+- budapest is tuff
 
 ## Boér Dávid János
 
@@ -17,8 +18,9 @@
 
 
 ## Dang Thai Phuc
-
-
+lmao
+lmao
+# lmao
 
 ## Demeter István Márk
 
@@ -29,9 +31,9 @@
 
 
 ## György Mátyás
-
-
-
+**mit kell csinálni???**
+1.alma
+2.körte
 ## Hadobás Milán
 
 
@@ -41,7 +43,7 @@
 
 
 ## Kondor Árpád
-
+##### print("hello word")
 
 
 ## Laczkó Máté Zalán
@@ -49,5 +51,5 @@
 
 
 ## Oldal Dávid István
-
+- yes
 
