@@ -9,11 +9,11 @@
 
 
 ## Bognár-Pupos Róbert Richárd
-- tuff
-- yes
-- ai bubble contributor (maybe)
+
+
+
 ## Csomor Bende
-Én vagyok én.
+
 
 
 ## Dang Thai Phuc
@@ -37,8 +37,6 @@
 
 
 ## Haris Tibor
-- hello
-
 
 
 
