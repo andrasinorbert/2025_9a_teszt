@@ -2,7 +2,8 @@
 
 ## Bige Bence Szabolcs
 
-
+- hate foids
+- budapest is tuff
 
 ## Boér Dávid János
 
@@ -17,8 +18,9 @@
 
 
 ## Dang Thai Phuc
-
-
+lmao
+lmao
+# lmao
 
 ## Demeter István Márk
 
