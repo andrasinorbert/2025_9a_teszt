@@ -2,27 +2,29 @@
 
 ## Bige Bence Szabolcs
 
-
+- hate foids
+- budapest is tuff
 
 ## Boér Dávid János
 
 
 
 ## Bognár-Pupos Róbert Richárd
-- tuff
-- yes
-- ai bubble contributor (maybe)
+
+
+
 ## Csomor Bende
-Én vagyok én.
+
 
 
 ## Dang Thai Phuc
-
-
+lmao
+lmao
+# lmao
 
 ## Demeter István Márk
 
-
+- Piramis
 
 ## Farkas Zalán
 
@@ -37,8 +39,6 @@ ksxrijlmelzmpypdqpkaqhsiypwalndiczkpmgljlldgxzygwewchwasjqzjsridfjxmturztmwlfyar
 
 
 ## Haris Tibor
-- hello
-
 
 
 
