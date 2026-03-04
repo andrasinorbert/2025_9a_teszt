@@ -13,7 +13,7 @@
 
 
 ## Csomor Bende
-
+Én vagyok én.
 
 
 ## Dang Thai Phuc
@@ -38,11 +38,13 @@ lmao
 
 
 ## Haris Tibor
+- hello
+
 
 
 
 ## Kondor Árpád
-
+##### print("hello word")
 
 
 ## Laczkó Máté Zalán
@@ -50,5 +52,5 @@ lmao
 
 
 ## Oldal Dávid István
-
+- yes
 
