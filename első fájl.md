@@ -18,10 +18,8 @@
 
 
 ## Dang Thai Phuc
-lmao
-lmao
-# lmao
 
+hate foids
 ## Demeter István Márk
 
 - Piramis
