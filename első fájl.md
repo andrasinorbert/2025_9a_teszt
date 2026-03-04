@@ -9,9 +9,9 @@
 
 
 ## Bognár-Pupos Róbert Richárd
-
-
-
+- tuff
+- yes
+- ai bubble contributor (maybe)
 ## Csomor Bende
 Én vagyok én.
 
@@ -30,9 +30,9 @@ lmao
 
 
 ## György Mátyás
-
-
-
+**mit kell csinálni???**
+1.alma
+2.körte
 ## Hadobás Milán
 
 
